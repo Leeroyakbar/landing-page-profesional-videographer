@@ -1,1 +1,1 @@
-# landing-page-profesional-videographer
+# landing-page-professional-videographer
